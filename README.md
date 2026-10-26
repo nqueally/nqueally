@@ -14,7 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-🛰️ NASA Postdoctoral fellow at JPL\
+🛰️ NASA postdoctoral fellow at JPL\
 🌲 Former postdoctoral scholar in Forest Ecosystems and Global Change Lab at UCLA\
 🌳 PhD in Forestry from UW Madison  
 
